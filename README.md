@@ -1,1 +1,1 @@
-I'm studying cybersecurity.(/・ω・)/
+I'm studying cybersecurity.
